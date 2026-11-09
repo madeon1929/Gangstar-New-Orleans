@@ -222,4 +222,4 @@ Gangstar New Orleans: Open World is available as a full free version, with all f
 Ready to take command of the streets? **Download Gangstar New Orleans: Open World now and unleash your inner crime lord!**
 
 ---
-**Last updated:** 2026-11-08 20:54:47 UTC
+**Last updated:** 2026-11-09 00:23:15 UTC
